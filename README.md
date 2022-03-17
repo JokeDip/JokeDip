@@ -1,4 +1,4 @@
-• 👋 Hi, I’m @CodingStudios
+• 👋 Hi, I’m @JokeDip
 
 • 👀 I’m interested in coding and many other things like reading, and sports ⚙️.
 
