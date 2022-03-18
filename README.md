@@ -3,3 +3,5 @@
 • 👀 I’m interested in coding and many other things like reading, and sports ⚙️.
 
 • 🧠 I know HTML, CSS and Javascript.
+
+• ⛓ 🐦 Twitter: twitter.com/JokeDip 
